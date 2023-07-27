@@ -5,7 +5,7 @@ Prepared by
 Mandala Sandeep
 Madanapalle Institute Of Technology and Science.
 
-6 WEEKS( June -1 to July 15)
+6 WEEKS( June -1 to  July 15)
 Project Team:
 mandala Sandeep
 Pathan Yasin Khan
